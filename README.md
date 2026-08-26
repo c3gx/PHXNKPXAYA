@@ -1,3 +1,3 @@
-yoo, glad you're reading this right now!♥️
-my names noah and i like to code.
-thats basically it!
+- yoo, glad you're reading this right now!♥️
+- my names noah and i like to code.
+- thats basically it!
